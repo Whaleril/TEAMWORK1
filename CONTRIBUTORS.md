@@ -2,9 +2,9 @@
 
 王薇 - 23009200489 - https://github.com/Whaleril
 
-郝敬安 - 23009200812 - 1654301724@qq.com
+郝敬安 - 23009200812 - https://github.com/Silence-1031
 
-樊龄聪 - 23009200825 - 2694812735@qq.com
+樊龄聪 - 23009200825 - https://github.com/sssssuga
 
 龚祖涵 - 23009200133 - https://github.com/gzhiahia
 
